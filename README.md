@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AlmaGangGriefs
+- 👀 I’m interested in Linux
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on owo
+- 📫 How to reach me [Discord](https://discord.gg/cJJyfPFYuZ)
+- 😄 Pronouns: They/Them
+- ⚡ Fun fact: Skibidi
